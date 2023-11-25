@@ -7,4 +7,8 @@ Reporte técnico publicado como entrada de blog:https://reportmrc.blogspot.com/2
 
 Elaborado por:
 
-Isabella y pablo
+Isabella Saez Calderon
+Alejandro Zapata Quintero
+Camilo Andres Granada Mejia 
+Andres Felipe Torres
+Juan Jose Florez Ospina
